@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **amal.as6060@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1P0t1u0ZY2ZsXQ4AVL4IKcUfc92U_X3Fa/view?usp=sharing](https://drive.google.com/file/d/1P0t1u0ZY2ZsXQ4AVL4IKcUfc92U_X3Fa/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dJJJmo6niM27gpbc1vpHGlHioqK9Z6Z5/view?usp=sharing](https://drive.google.com/file/d/1dJJJmo6niM27gpbc1vpHGlHioqK9Z6Z5/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
